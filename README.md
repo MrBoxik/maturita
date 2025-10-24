@@ -1,4 +1,4 @@
-## [➡️Download](https://github.com/MrBoxik/maturita/releases/tag/1)
+## [➡️Download](https://github.com/MrBoxik/maturita/releases/tag/2)
 
 ---
 
